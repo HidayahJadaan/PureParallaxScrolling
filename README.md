@@ -1,1 +1,6 @@
-# PureParallaxScrolling[parallax_compressed.webm](https://github.com/HidayahJadaan/PureParallaxScrolling/assets/121747756/71683d7a-38a5-4246-a05a-8f5d9e5cbd4c)
+# PureParallaxScrolling
+
+
+
+https://github.com/HidayahJadaan/PureParallaxScrolling/assets/121747756/0a2c7da0-3e7a-4e28-9530-b575da2d421a
+
